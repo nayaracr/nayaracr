@@ -1,1 +1,2 @@
-a vida é uma bosta
+não vai dar namoro
+CAVALO
